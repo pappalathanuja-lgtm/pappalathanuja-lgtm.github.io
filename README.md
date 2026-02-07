@@ -1,1 +1,0 @@
-# pappalathanuja-lgtm.github.io
